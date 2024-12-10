@@ -8,3 +8,6 @@ DETALHES: ELE TEM MEDO DE MULHER
 
 PIX: +55 77 2193 2435
 ![image](https://github.com/user-attachments/assets/60c808ad-84f0-4f56-9d5e-b7a3f6f507e4)
+
+# APENAS TOMEM CUIDADO !, ELE EH PERIGOSO !
+![image](https://github.com/user-attachments/assets/65a21d98-21d0-4f0f-91ce-26bf540ef672)
